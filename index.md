@@ -1,5 +1,5 @@
 ## AUTHENTIC VIBES LLC
 
-The Feeling Begets The Same In Return...
+The Feeling Within Is Manifest In The World.
 
 
