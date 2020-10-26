@@ -1,5 +1,5 @@
 ## AUTHENTIC VIBES LLC
 
-The Feeling Within Is Manifest In The World.
+The Feeling Is What Matters.
 
 
